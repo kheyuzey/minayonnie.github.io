@@ -1,5 +1,5 @@
 # minayonnie
-# nayeony.github.io
+# minayonie.github.io
   > who is twice?
   twice is a South Korean girl group formed by JYP Entertainment
   the group is composed of nine members:
